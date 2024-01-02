@@ -1,0 +1,1 @@
+eu to so testando escrevendo coisas aleatroias depois eu vejo o que digito
